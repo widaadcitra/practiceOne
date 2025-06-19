@@ -1,2 +1,2 @@
 # practiceOne
-dhiyaa citra 
+dhiyaa citraa
